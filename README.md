@@ -1,6 +1,8 @@
- ok
-![17756531756664237748674482541833](https://github.com/user-attachments/assets/ae429363-80ea-4712-8cea-be1e744e5064)
-𝘮𝘦 𝘢𝘯𝘥 𝘮𝘺 𝘩𝘣
+ ok 
+
+<img width="2048" height="2048" alt="1775818943148367179690179433067" src="https://github.com/user-attachments/assets/a8570270-3957-46c5-a892-e556c09a3aed" />
+
+𝘬𝘪𝘯𝘥𝘢 𝘣𝘢𝘥, 𝘰𝘬
 
 ✦ — [prns](https://pronouns.cc/@Riozzr)
 
