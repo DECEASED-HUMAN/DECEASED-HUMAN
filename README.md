@@ -2,7 +2,7 @@
  
 ⋆˚𝜗𝜚˚⋆  . 𝘐𝘚𝘛𝘗-𝘛
 
-<img width="2048" height="2048" alt="1775818943148367179690179433067" src="https://github.com/user-attachments/assets/a8570270-3957-46c5-a892-e556c09a3aed" />
+
 
 ![17758192968053455645506981482366](https://github.com/user-attachments/assets/f6b89a26-f154-4401-96c9-9102b60d2cc0)
 
